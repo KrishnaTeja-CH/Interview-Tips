@@ -39,6 +39,6 @@ Tips and strategies for landing a role at Walmart through tailored application a
 - Use your professional network effectively.
 - Attend relevant events and engage in discussions.
 
----
+----
 
 Good luck with your application journey! 🚀
